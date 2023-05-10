@@ -1,1 +1,0 @@
-# Gazetka_takafajna
